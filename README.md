@@ -1,4 +1,4 @@
-# HybridHeart-Hozon-2020-
+# HybridHeart-Horizon-2020-
 
 ABSTRACT:
 
